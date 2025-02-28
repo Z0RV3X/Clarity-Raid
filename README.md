@@ -9,3 +9,14 @@ THE CREATOR DID NOT INTEND CLARITY RAID AS A TOOL FOR ILLEGAL PURPOSES AND THERE
 BY USING THIS SOFTWARE, YOU MUST AGREE TO TAKE FULL RESPONSIBILITY FOR DAMAGE CAUSED BY CLARITY RAID IN ANY WAY ON YOUR OWN.
 THE CREATOR DOES NOT WANT PEOPLE TO USE CLARITY RAID IF THEY DO NOT HAVE EXPERIENCE WITH THE ATTACKS INCLUDED.
 CLARITY RAID SHOULD NOT SUGGEST PEOPLE TO PERFORM ILLEGAL ACTIVITIES.__
+
+                                                                                         
+                                    ▄████▄   ██▓    ▄▄▄       ██▀███   ██▓▄▄▄█████▓▓██   ██▓  ║ Z0RV3X
+                                   ▒██▀ ▀█  ▓██▒   ▒████▄    ▓██ ▒ ██▒▓██▒▓  ██▒ ▓▒ ▒██  ██▒  ║═══════════════
+                                   ▒▓█    ▄ ▒██░   ▒██  ▀█▄  ▓██ ░▄█ ▒▒██▒▒ ▓██░ ▒░  ▒██ ██░  
+                                   ▒▓▓▄ ▄██▒▒██░   ░██▄▄▄▄██ ▒██▀▀█▄  ░██░░ ▓██▓ ░   ░ ▐██▓░  
+                                   ▒ ▓███▀ ░░██████▒▓█   ▓██▒░██▓ ▒██▒░██░  ▒██▒ ░   ░ ██▒▓░  
+                                   ░ ░▒ ▒  ░░ ▒░▓  ░▒▒   ▓▒█░░ ▒▓ ░▒▓░░▓    ▒ ░░      ██▒▒▒   
+                                     ░  ▒   ░ ░ ▒  ░ ▒   ▒▒ ░  ░▒ ░ ▒░ ▒ ░    ░     ▓██ ░▒░
+                                   ░          ░ ░    ░   ▒     ░░   ░  ▒ ░  ░       ▒ ▒ ░░ 
+                                   ░ ░          ░  ░     ░  ░   ░      ░            ░ ░      
