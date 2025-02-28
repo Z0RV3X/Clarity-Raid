@@ -1,4 +1,4 @@
-# Clarity-Raid 
+# Clarity-Raid ✠ 
 <img align="center" src="img/image.png" width="100%"> 
 <br>
 **Dont forget to give it a star ⭐**
